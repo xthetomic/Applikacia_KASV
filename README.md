@@ -1,0 +1,1 @@
+# Applikacia_KASV
